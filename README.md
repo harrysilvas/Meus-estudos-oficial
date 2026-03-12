@@ -1,2 +1,2 @@
 # Meus estudos oficial
-novos sites aprendedo criar
+novos sites aprendedo criar site do zero
